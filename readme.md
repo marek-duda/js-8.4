@@ -1,1 +1,1 @@
-# 8.4 Trudne początki
+# 8.4 Początki zawsze są trudne
